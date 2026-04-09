@@ -13,7 +13,7 @@
 
 ###
 
-<img align="right" height="150" src="https://www.reddit.com/media?url=https%3A%2F%2Fi.redd.it%2Fngs3u8hxz0wb1.jpg"/>
+<img align="right" height="150" src="https://i.imgur.com/cHXqQzn.jpeg"/>
 
 ###
 
